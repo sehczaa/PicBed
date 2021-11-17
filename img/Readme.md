@@ -18,4 +18,4 @@
 
 
 
-我的博客：https://sehcz.ltd/
+我的博客：https://sehcz.ltd/ （推荐使用PC端访问）
