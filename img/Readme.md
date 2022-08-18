@@ -20,4 +20,6 @@
 
 我的博客：修改完善当中
 
+我的留言板：message.sehcz.ltd
+
 我的导航网页：https://nav.sehcz.ltd/
