@@ -18,7 +18,7 @@
 
 
 
-我的博客：修改完善当中
+我的博客：https://sehcz.ltd/
 
 我的留言板：[message.sehcz.ltd](https://message.sehcz.ltd/)
 
